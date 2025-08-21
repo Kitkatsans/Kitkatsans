@@ -10,7 +10,7 @@
 
 # Socials
 ⋮ ⌗ ┆ Discord
-  - ~Kitkat_Sans~
+  - ~ Kitkat_Sans ~
   - (THE LOST LIGHT SERVER)[https://discord.gg/RaCc5WphvV]
 
 ⋮ ⌗ ┆ Patreon
