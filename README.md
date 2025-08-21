@@ -7,7 +7,11 @@
   - Busy icon : AFK / Doing smth irl / Eating / studying
 
 
- Socials
+.
+
+
+Socials
+
 ⋮ ⌗ ┆ Discord
   - ~ Kitkat_Sans ~
   - (THE LOST LIGHT SERVER)[https://discord.gg/RaCc5WphvV]
