@@ -1,6 +1,6 @@
 # Hi!!! My name is Kitkat! my friends call me by Kit or some other messed up nickname they got of me,.,
 
-#Status
+# Status
   - Chat box icon : Lonely lol PLSPLS INT WITH MEE
   - Tragedy mask icon : Roleplaying rn (still can't take myself seriously
   - Crescent moon icon : Semi-afk / Off-tab
