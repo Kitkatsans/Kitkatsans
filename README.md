@@ -1,6 +1,5 @@
 ## Hi!!! My name is Kitkat! my friends call me by Kit or some other messed up nickname they got of me,.,
 
-  <img width="475" height="1500" alt="Strawpage design for pt intro" src="https://github.com/user-attachments/assets/6f1e40aa-2a58-4c07-b14b-733733ee663e" />
 
 # Status
   - Chat box icon : Lonely lol PLSPLS INT WITH MEE
