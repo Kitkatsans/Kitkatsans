@@ -1,16 +1,25 @@
-## Hi there 👋
+## Hi!!! My name is Kitkat! my friends call me by Kit or some other messed up nickname they got of me,.,
 
-<!--
-**Kitkatsans/Kitkatsans** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  <img width="475" height="1500" alt="Strawpage design for pt intro" src="https://github.com/user-attachments/assets/6f1e40aa-2a58-4c07-b14b-733733ee663e" />
 
-Here are some ideas to get you started:
+# Status
+  - Chat box icon : Lonely lol PLSPLS INT WITH MEE
+  - Tragedy mask icon : Roleplaying rn (still can't take myself seriously
+  - Crescent moon icon : Semi-afk / Off-tab
+  - Busy icon : AFK / Doing smth irl / Eating / studying
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+# Socials
+⋮ ⌗ ┆ Discord
+    - ~Kitkat_Sans~
+    - (THE LOST LIGHT SERVER)[https://discord.gg/RaCc5WphvV]
+
+⋮ ⌗ ┆ Patreon
+    - [𝓚𝓲𝓽𝓴𝓪𝓽_𝓼𝓪𝓷𝓼](https://www.patreon.com/c/broisaskeletonandrobotpounder)
+
+⋮ ⌗ ┆ Tumblr
+    - [Kitkat sans's Dump](https://www.tumblr.com/kitkat-sans)
+
+⋮ ⌗ ┆ STRAWPAGE
+    - [KNOW MORE ABT ME ON THIS](https://introduction-to-pt.straw.page/)
+    - [STARSCREAM SHRINE](https://starscream-shrine.straw.page/)
