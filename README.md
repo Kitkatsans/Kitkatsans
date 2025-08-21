@@ -1,4 +1,4 @@
-## Hi!!! My name is Kitkat! my friends call me by Kit or some other messed up nickname they got of me,.,
+# Hi!!! My name is Kitkat! my friends call me by Kit or some other messed up nickname they got of me,.,
 
 # Status
   - Chat box icon : Lonely lol PLSPLS INT WITH MEE
