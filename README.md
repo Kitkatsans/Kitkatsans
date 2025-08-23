@@ -14,7 +14,7 @@ Socials
 
 ⋮ ⌗ ┆ Discord
   - ~ Kitkat_Sans ~
-  - (THE LOST LIGHT SERVER)[https://discord.gg/RaCc5WphvV]
+  - [THE LOST LIGHT SERVER](https://discord.gg/RaCc5WphvV)
 
 
 ⋮ ⌗ ┆ Patreon
