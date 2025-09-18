@@ -21,6 +21,7 @@ Socials
 
 ⋮ ⌗ ┆ Patreon
   - [𝓚𝓲𝓽𝓴𝓪𝓽_𝓼𝓪𝓷𝓼](https://www.patreon.com/c/broisaskeletonandrobotpounder)
+  - its a bit messy.,,. omhg i need to fix it.,.
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
