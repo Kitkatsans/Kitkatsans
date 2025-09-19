@@ -7,6 +7,9 @@
   - Busy icon : AFK / Doing smth irl / Eating / studying
 
 
+I also really like building! If you have any unfinished builds and need help. I'll be happy to do so!! really my inner bloxburgian will NOT leave me alone
+
+
 .
 
 
