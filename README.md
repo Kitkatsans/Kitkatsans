@@ -9,6 +9,8 @@
 
 I also really like building! If you have any unfinished builds and need help. I'll be happy to do so!! really my inner bloxburgian will NOT leave me alone
 
+I also love people who C+H with me! i dont mind if you make it a ship cuddle lol, Im a multishipper i might probably ship it myself as well
+
 
 .
 
