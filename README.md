@@ -42,6 +42,6 @@ Socials
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-⋮ ⌗ ┆ STRAWPAGE
-  - [SPACEHEY!!](https://spacehey.com/profile?id=3032899)
+⋮ ⌗ ┆ SPACEHEY
+  - [SPACEHEY!!](https://spacehey.com/profile?id=3032899) {Still not done with it yet}
     
