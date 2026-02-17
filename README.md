@@ -48,5 +48,5 @@ Socials
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆  ARTFIGHT
-  [ARTFIGHT !!](https://artfight.net/~Kitkat_Sans)
+  -  [ARTFIGHT !!](https://artfight.net/~Kitkat_Sans)
     
