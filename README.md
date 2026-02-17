@@ -37,11 +37,16 @@ Socials
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆ STRAWPAGE
-  - [KNOW MORE ABT ME ON THIS](https://introduction-to-pt.straw.page/)
+  - [KNOW MORE ABT ME ON THIS ON PONYTOWN](https://introduction-to-pt.straw.page/)
   - [STARSCREAM SHRINE](https://starscream-shrine.straw.page/) {Still underconstruction UGHGHGHH}
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆ SPACEHEY
-  - [SPACEHEY!!](https://spacehey.com/profile?id=3032899) {Still not done with it yet}
+  - [SPACEHEY !!](https://spacehey.com/profile?id=3032899) {Still not done with it yet}
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+⋮ ⌗ ┆  ARTFIGHT
+  [ARTFIGHT !!](https://artfight.net/~Kitkat_Sans)
     
