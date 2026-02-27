@@ -42,7 +42,7 @@ Socials
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆ STRAWPAGE
-  - [KNOW MORE ABT ME ON THIS ON PONYTOWN](https://introduction-to-pt.straw.page/)
+  - [KNOW MORE ABT ME ON THIS ON PONYTOWN](https://introduction-to-pt.straw.page/) i haven't updated this one in a while so it still says im 16 lmao
   - [STARSCREAM SHRINE](https://starscream-shrine.straw.page/) {Still underconstruction UGHGHGHH}
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
