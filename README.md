@@ -42,7 +42,7 @@ Socials
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 ⋮ ⌗ ┆ STRAWPAGE
-  - [KNOW MORE ABT ME ON THIS ON PONYTOWN](https://introduction-to-pt.straw.page/) i haven't updated this one in a while so it still says im 16 lmao
+  - [KNOW MORE ABT ME ON THIS ON PONYTOWN](https://introduction-to-pt.straw.page/) i haven't updated this one in a while so it still says im 16 lmao . also i need to add Metal Cardbot into the list grrr
   - [STARSCREAM SHRINE](https://starscream-shrine.straw.page/) {Still underconstruction UGHGHGHH}
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
