@@ -8,6 +8,7 @@
 
 
 If i am actively intereacting with you with expressions and boops but never typing out anything, i might be just non verbal at the moment and won't specify it myself ingame
+
 Also unless you're my friend i will never reply to you when afk, when i know a friend is near me i will often check up on them in game despite having the "AFK" tag on my name
 
 I really like building! If you have any unfinished builds and need help. I'll be happy to do so!! really my inner bloxburgian will NOT leave me alone
