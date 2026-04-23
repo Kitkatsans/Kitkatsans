@@ -15,6 +15,8 @@ I really like building! If you have any unfinished builds and need help. I'll be
 
 I love people who C+H with me! i dont mind if you make it a ship cuddle lol, Im a multishipper i might probably ship it myself as well
 
+It is very rare that i would use dni as my status, since I value interactions heavily, but when I do have it on, probably dont interact with me, i might just be having a really hard time and I prefer not to let anyone interfere with my sulking lol, i will not let my friends get into my problems much less strangers and i'd rather to handle it myself.
+
 
 .
 
